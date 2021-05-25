@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @artkorotkikh
+- 👀 I’m interested in design
+- 🌱 I’m currently learning new coding opportunities 
